@@ -1,4 +1,4 @@
-### Hi there 👋
+I have no idea what I'm doing.
 
 <!--
 **Vynn0/Vynn0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
